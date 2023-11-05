@@ -7,7 +7,7 @@ But I'll give you a Bullet List of things I appreciate in my life:
 
 - 🔭 I love learning about science, from physics to psychology .
 - 🌱 I have a plant called Petrita.
-- 🌎 I love learning languages.
+- 🌎 I love learning languages. 🇲🇽🇺🇸🇩🇪🇷🇴🇷🇺
 - 📚 I try to read from different topics.
 - 🧠 I'm obssesed with Learning Techniques, Brain enhancement and Education.
 
